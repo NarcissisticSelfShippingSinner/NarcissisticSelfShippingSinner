@@ -1,12 +1,14 @@
 ## SOMEWHERE LIKE [[Heaven]]
-ㅤ![tumblr_abe30b03d00c5852f854a79903974d79_d222e351_2048](https://github.com/user-attachments/assets/6a8369a6-42a4-44ab-a59f-218cbd8977f7)
+![tumblr_abe30b03d00c5852f854a79903974d79_d222e351_2048](https://github.com/user-attachments/assets/6a8369a6-42a4-44ab-a59f-218cbd8977f7)
 <img width="1280" height="204" alt="257ffd49f507df6c6233bf2e03db35011a08b3fc" src="https://github.com/user-attachments/assets/81af8c93-340c-4bc8-8942-191251f969de" />
 
-ㅤㅤㅤㅤㅤRamb / Battat 
+ㅤㅤㅤㅤㅤRamb / Battat / Seam
 ㅤThe polymikes n Sneotenna CEO in my mind I'd like to think.
-ㅤㅤㅤuhmm BYI I'm lowkey. schizoaffective n I get paranoid and space out easily
-ㅤㅤㅤㅤㅤso mb ^_^; I'm also a hypersharing Tenna yume!  yay !
 
+ㅤㅤㅤuhmm BYI I'm lowkey. schizoaffective n I get paranoid and space out easilyso mb ^_^; I'm also a hypersharing Tenna yume!  yay ! 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤuhm no dni jus don't be weird to me or oomfs ok? also all my dr ponies are usually me. so. don't b weird abt
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthe character ! cuz dats me ! ok ! cool beans !
 <img width="1280" height="204" alt="a4dc794240a86971fd251ed3b16dca88056eb9f5" src="https://github.com/user-attachments/assets/1b958e43-c1fa-4ef3-adcd-179d5b820445" />
 
 ㅤ
